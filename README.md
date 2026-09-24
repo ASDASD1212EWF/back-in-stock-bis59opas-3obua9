@@ -1,3 +1,3 @@
 24/09/2026
 
-<!-- Round 1 · 2026-09-24 14:56:37 · oDBXr2uz · laura@spartanspc.com, anthony.musto@conflictkinetics.com -->
+<!-- Round 2 · 2026-09-24 14:56:43 · ma8UBNtY · fsettle@teamvds.com, cparker@cazadorproperties.com -->
